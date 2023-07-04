@@ -9,8 +9,6 @@
 
 - 👯 I’m looking to collaborate on **Hackathons**
 
-- 📝 I regularly write articles on [https://medium.com/@lin15jenny2003](https://medium.com/@lin15jenny2003)
-
 - 💬 Ask me about **Food**
 
 - 📫 How to reach me **lin15jenny2003@gmail.com**
